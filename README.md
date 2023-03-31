@@ -5,3 +5,8 @@
 - 😄 Pronouns: He/Him
 - 💬 Ask me about React, JS, .NET and Java
 - ⚡ Fun fact: Series, Movies, Partys, Concerts, Gym and Have Lunch
+
+
+
+
+I'm not around much these days :(
